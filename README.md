@@ -36,9 +36,74 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Newes from Italy of a second Moses or, the life of Galeacius Caracciolus the noble Marquesse of Vico
+
+1. 
+TO THE RIGHT HONORABLE AND MY VERY GOOD LORD, EDmund Lord Sheffeild, Lord Lieutenant in the North, and Lord Preſident of his Highnes Counſell there, of the noble order of the Garter: and to the right honourable and religious Ladies, the Lady Dowglaſſe his mother, and Lady Vrſula his wife, and to all the vertuous of-ſpring of that noble race, Grace and Peace, &c.
+
+1. TO THE CRISTIAN and courteous Reader.
+
 #####Body#####
-Newes from Italy of a second Moses or, the life of Galeacius Caracciolus the noble Marquesse of Vico
+
+1. CHAP. 1.
+
+1. CHAP. II.
+
+1. CHAP. III.
+
+1. CHAP. IIII.
+
+1. CHAP. V.
+
+1. CHAP. VI.
+
+1. CHAP. VII.
+
+1. CHAP. VIII.
+
+1. CHAP. IX.
+
+1. CHAP. X.
+
+1. CHAP. XI.
+
+1. CHAP. XII.
+
+1. CHAP. XIII.
+
+1. CHAP. XIIII.
+
+1. CHAP. XV.
+
+1. CHAP. XVI.
+
+1. CHAP. XVII.
+
+1. CHAP. XVIII.
+
+1. CHAP. XIX.
+
+1. CHAP. XX.
+
+1. CHAP. XXI.
+
+1. CHAP. XXII.
+
+1. CHAP. XXIII.
+
+1. CHAP. XXIIII.
+
+1. CHAP. XXV.
+
+1. CHAP. XXVI.
+
+1. CHAP. XXVII.
+
+1. CHAP. XXVIII.
+
+1. CHAP. XXIX.
+
+1. CHAP. XXX.
+
 **Types of content**
 
   * There are 2 **verse** lines!
